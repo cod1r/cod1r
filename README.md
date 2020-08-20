@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 -->
 - I am interested in mathematics and understanding mathematics in computer science which could help me improve what I create.
 - Currently exploring computer science.
+![](https://komarev.com/ghpvc/?username=cod1r)
