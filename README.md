@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... 
 -->
-- I am interested in mathematics and understanding mathematics in computer science which could help me improve what I create.
+- Althought I am not really good at math, I am interested in mathematics and understanding mathematics in computer science which could help me improve what I create.
 - Currently exploring computer science.
 ![](https://komarev.com/ghpvc/?username=cod1r)
