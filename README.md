@@ -1,1 +1,1 @@
-https://media1.tenor.com/images/79ad375e04e71ba48c8ed533d96becda/tenor.gif?itemid=20540014
+![Gojo Satoru](https://media1.tenor.com/images/79ad375e04e71ba48c8ed533d96becda/tenor.gif?itemid=20540014)
